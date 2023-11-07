@@ -1,1 +1,0 @@
-# janosbinder.github.io
